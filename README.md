@@ -1,2 +1,2 @@
 # ryjacoming
-GitHub Pages
+coming soon is ryja
